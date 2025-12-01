@@ -1,2 +1,2 @@
-# kummy-men--donitas
+# kummy-menú-donitas
 Mini donas menú 🍩✨
